@@ -3,19 +3,19 @@ oefening met **_markdown_**
 
 Dit heb je nodig voor 2 cakes:
 
-    **300 gram bloem**
-    **300 gram suiker**
-    **2 dl zonnebloemolie**
-    **5 eieren (op kamer temperatuur brengen in een schaaltje warm water)**
-    **1 eetlepel bakpoeder**
-    **1 theelepel zout**
-    **1 eetlepel amandelextract. Eventueel kan er ook een ander smaakje worden gebruikt.**
-    **2 zakjes vanillesuiker**
-    **1 courgette(350-400 gram)**
+* 300 gram bloem
+* 300 gram suiker
+* 2 dl zonnebloemolie
+* 5 eieren
+* 1 eetlepel bakpoeder
+* 1 theelepel zout
+* 1 eetlepel amandelextract
+* 2 zakjes vanillesuiker
+* 1 courgette(350-400 gram)
 
-    **Twee bakblikken van 25 cm lang**
-    **Een mixer**
-    **Een grove rasp**
+* Twee bakblikken van 25 cm lang
+* Een mixer
+* Een grove rasp
 
 Begin met de oven voor te verwarmen op 150ºC. (elektrische)
 
