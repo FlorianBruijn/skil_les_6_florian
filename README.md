@@ -17,22 +17,22 @@ Dit heb je nodig voor 2 cakes:
 * Een mixer
 * Een grove rasp
 
-Begin met de oven voor te verwarmen op 150ºC. (elektrische)
+1. Begin met de oven voor te verwarmen op 150ºC. (elektrische)
 
-Vet de bakblikken in, daarna bestrooien met paneermeel of bloem.
+2. Vet de bakblikken in, daarna bestrooien met paneermeel of bloem.
 
-Klop de eieren met de suiker en de vanillesuiker goed door elkaar tot een luchtig beslag.
+3. Klop de eieren met de suiker en de vanillesuiker goed door elkaar tot een luchtig beslag.
 
-Het amandelextract en de olie toevoegen en ± 2 min. door kloppen.
+4. Het amandelextract en de olie toevoegen en ± 2 min. door kloppen.
 
-De bloem gemengd met de bakpoeder en het zout er door zeven en kloppen.
+5. De bloem gemengd met de bakpoeder en het zout er door zeven en kloppen.
 
-Rasp de courgette grof. Vooraf schillen mag, maar hoeft niet. Knijp het vocht uit de geraste courgette. Als laatste de geraspte courgette door het mengsel scheppen.
+6. Rasp de courgette grof. Vooraf schillen mag, maar hoeft niet. Knijp het vocht uit de geraste courgette. Als laatste de geraspte courgette door het mengsel scheppen.
 
-De bakblikken vullen en onder het midden van de voorverwarmde oven plaatsen.
+7. De bakblikken vullen en onder het midden van de voorverwarmde oven plaatsen.
 
-Na 15 minuten de temperatuur van 150°C verhogen naar 180° en daarna in ongeveer 30-40 minuten gaarbakken. (controleer met een breinaald of de cake droog is) en of de bovenrand los staat van het blik.
+8. Na 15 minuten de temperatuur van 150°C verhogen naar 180° en daarna in ongeveer 30-40 minuten gaarbakken. (controleer met een breinaald of de cake droog is) en of de bovenrand los staat van het blik.
 
-Eet smakelijk!
+9. Eet smakelijk!
 
 ![het eindresultaat](https://www.creativenourish.com/wp-content/uploads/2019/10/Zucchini-Cake-8.jpg)
